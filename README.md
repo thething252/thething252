@@ -1,3 +1,8 @@
+Hi, I make some minecraft visual mods, nothing impressive yet lol!
+
+
+
+
 ![](https://komarev.com/ghpvc/?thething252)
 ![](https://komarev.com/ghpvc/?thething252&color=blueviolet)
 
