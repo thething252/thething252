@@ -1,4 +1,4 @@
-Hi, I make some minecraft visual mods, nothing impressive yet lol!
+Hi, I make some minecraft and KSP visual mods, nothing impressive yet lol!
 
 
 
